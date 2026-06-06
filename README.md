@@ -1,2 +1,0 @@
-# sergeizaitsev-art
-sergeizaitsev-art
